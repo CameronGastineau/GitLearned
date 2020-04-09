@@ -1,10 +1,8 @@
 # GitLearned
 
-sdfdsfdsf
 
-lksdjfkjsdlfjs
-sdlkfjskdlj
-sdlkfjskdlj
+sdjflksdjfkldj
 
+Cameron told me to change some shit
 
-sdkjfkdjs
+asdasdasd
